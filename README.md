@@ -15,7 +15,7 @@
 
 ## Anime Poster
 
-![Sword Art Online Poster](https://c4.wallpaperflare.com/wallpaper/382/921/173/anime-anime-boys-anime-girls-sword-wallpaper-preview.jpg)
+![Sword Art Online Poster](https://4kwallpapers.com/images/walls/thumbs_3t/10494.jpg)
 
 ## Key Features
 
